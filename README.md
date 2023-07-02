@@ -1,1 +1,2 @@
-# nbqhuy.github.io
+# Dizer
+GO GO: https://nbqhuy.github.io
